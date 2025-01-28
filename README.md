@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **ac5500119@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1AQNmVh_q2s_sQT8FNjW4sev_w5nTR_kT/view?usp=drive_link](https://drive.google.com/file/d/1AQNmVh_q2s_sQT8FNjW4sev_w5nTR_kT/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mW02e35_w8Saymq6YZMN4IBMEMtXZRz4/view?usp=drive_link]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
